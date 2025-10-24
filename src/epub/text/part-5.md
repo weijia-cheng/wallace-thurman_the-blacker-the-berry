@@ -1,10 +1,9 @@
-<span class="calibre8"><span class="smallcaps">Part V</span></span>
+Part V
 
-<span class="calibre8">PYRRHIC VICTORY</span>
+PYRRHIC VICTORY
 
-<span class="dropinitial"><span
-class="dropinitial-initial">I</span></span><span class="smallcaps1">t
-was</span> two years later. “Cabaret Gal,” which had been on the road
+It
+was two years later. “Cabaret Gal,” which had been on the road
 for one year, had returned to New York and the company had been
 disbanded. Arline was preparing to go to Europe and had decided not to
 take a maid with her. However, she determined to get Emma Lou another
@@ -19,11 +18,7 @@ maid, and found it much less tiresome than being in the theater with
 Arline. Clere was less temperamental and less hurried. She led a rather
 leisurely life, and treated Emma Lou more as a companion than as a
 servant. Clere’s husband, Campbell Kitchen, was very congenial and kind
-too, although Emma Lou, at first, seldom came into con<span
-id="calibre_link-5" page-number="218"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/226"
-page-index="226" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/226"></span>tact
+too, although Emma Lou, at first, seldom came into contact
 with him, for he and his wife practically led separate existences,
 meeting only at meals, or when they had guests, or when they both
 happened to arise at the same hour for breakfast. Occasionally, they
@@ -44,11 +39,7 @@ publicity to many unknown blues singers. It was he who sponsored most of
 the younger Negro writers, personally carrying their work to publishers
 and editors. It wasn’t his fault entirely that most of them were
 published before they had anything to say or before they knew how to say
-it. Rather it was the fault of the faddistic <span id="calibre_link-6"
-page-number="219"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/227"
-page-index="227" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/227"></span>American
+it. Rather it was the fault of the faddistic American
 public which followed the band wagon and kept clamoring for additional
 performances, not because of any manifested excellence, but rather
 because of their sensationalism and pseudo-barbaric *decor*.
@@ -69,11 +60,7 @@ sentimental, and the erotic clashed with the commonplace.
 
 Negroes had not liked Campbell Kitchen’s delineation of their life in
 the world’s greatest colored city. They contended that, like ‘“Nigger
-Heaven” by Carl Van Vechten, the book gave white people a wrong <span
-id="calibre_link-7" page-number="220"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/228"
-page-index="228" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/228"></span>impression
+Heaven” by Carl Van Vechten, the book gave white people a wrong impression
 of Negroes, thus lessening their prospects of doing away with prejudice
 and race discrimination. From what she had heard, Emma Lou had expected
 to meet a sneering, obscene cynic, intent upon ravaging every Negro
@@ -96,10 +83,7 @@ supersensitive about her color? Did she encourage color prejudice among
 her own people, simply by being so expectant of it? She tried hard to
 place the blame on herself, but she couldn’t seem to do it. She knew she
 hadn’t been color-conscious during her early childhood days; that is,
-until <span id="calibre_link-8" page-number="221"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/229"
-page-index="229" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/229"></span>she
+until she
 had had it called to her attention by her mother or some of her mother’s
 friends, who had all seemed to take delight in marvelling, “What an
 extraordinarily black child!” or “Such beautiful hair on such a black
@@ -122,10 +106,7 @@ graduation night, and the lonely embittering three years at college, all
 of which had tended to make her color more and more a paramount issue
 and ill. It was neither fashionable nor good for a girl to be as dark as
 she, and to be, at the same time, as untalented and undistinguished.
-<span id="calibre_link-9" page-number="222"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/230"
-page-index="230" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/230"></span>Dark
+Dark
 girls could get along if they were exceptionally talented or handsome or
 wealthy, but she had nothing to recommend her, save a beautiful head of
 hair. Despite the fact that she had managed to lead her classes in
@@ -146,11 +127,7 @@ in her college, nor had it been her color-consciousness that had caused
 her to spend such an isolated three years in Southern California. The
 people she naturally felt at home with had, somehow or other, managed to
 keep her at a distance. It was no fun going to social affairs and being
-neglected throughout the entire evening. There was no <span
-id="calibre_link-10" page-number="223"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/231"
-page-index="231" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/231"></span>need
+neglected throughout the entire evening. There was no need
 in forcing one’s self into a certain milieu only to be frozen out.
 Hence, she had stayed to herself, had had very few friends, and had
 become more and more resentful of her blackness of skin.
@@ -173,11 +150,7 @@ him enough to keep trying to win him back, even after his disgust had
 driven him away from her. She sadly recalled how she had telephoned him
 repeatedly, and how he had hung up the receiver with the brief, cruel “I
 don’t care to talk to you,” and she recalled how, swallowing her pride,
-she had gone to his house the day before she had left <span
-id="calibre_link-11" page-number="224"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/232"
-page-index="232" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/232"></span>New
+she had gone to his house the day before she had left New
 York. Alva had greeted her coolly, then politely informed her that he
 couldn’t let her in, as he had other company.
 
@@ -201,14 +174,10 @@ away without asking for Alva, only to halt as if thunderstruck when she
 heard his voice, as Geraldine was closing the door, asking, “Who was it,
 Sugar?”
 
-<span id="calibre_link-12" page-number="225"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/233"
-page-index="233" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/233"></span>For
+For
 a while, Alva had been content. He really loved Geraldine, or so he
 thought. To him she seemed eminently desirable in every respect, and now
-that she was about to bear him a child, well <span
-class="nowrap">. . .</span> he didn’t yet know what they would do with
+that she was about to bear him a child, well . . . he didn’t yet know what they would do with
 it, but everything would work out as it should. He didn’t even mind
 having to return to work, nor, for the moment, mind having to give less
 attention to the rest of his harem.
@@ -227,10 +196,7 @@ certain to take it all wrong.
 The months passed; the baby was born. Both of the parents were bitterly
 disappointed by this sickly, little “ball of tainted suet,” as Alva
 called it. It had a shrunken left arm and a deformed left foot. The
-<span id="calibre_link-13" page-number="226"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/234"
-page-index="234" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/234"></span>doctor
+doctor
 ordered oil massages. There was a chance that the infant’s limbs could
 be shaped into some semblance of normality. Alva declared that it looked
 like an idiot. Geraldine had a struggle with herself, trying to keep
@@ -253,10 +219,7 @@ insanely large and vacant eyes which seemed never to close, and for the
 thick grinning lips, which always remained half open and through which
 came no translatable sounds.
 
-<span id="calibre_link-14" page-number="227"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/235"
-page-index="235" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/235"></span>Geraldine’s
+Geraldine’s
 mother was a pious woman, and, of course, denounced the parents for the
 condition of the child. Had they not lived in sin, this would not be.
 Had they married and lived respectably, God would not have punished them
@@ -277,11 +240,7 @@ his drinking provided no escape. And though he was often tempted, he
 felt that he could not run away and leave Geraldine alone with the baby.
 
 Then he began to need money. Geraldine couldn’t work because some one
-had to look after the child. <span id="calibre_link-15"
-page-number="228"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/236"
-page-index="236" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/236"></span>Alva
+had to look after the child. Alva
 wouldn’t work now, and made no effort to come into contact with new
 “paying off”’ people. The old ones were not as numerous or as generous
 as formerly. Those who hadn’t drifted away didn’t care enough about the
@@ -303,13 +262,10 @@ away from her. She knew what this would mean and she had no idea of
 letting him do it. She realized that should she be left alone with the
 child it would mean that she would be burdened throughout the years it
 lived, forced to struggle and support herself and her charge. But were
-<span id="calibre_link-16" page-number="229"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/237"
-page-index="237" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/237"></span>she
+she
 to leave Alva, some more sensible plan would undoubtedly present itself.
 No one expected a father to tie himself to an infant, and if that infant
-happened to be ill and an idiot <span class="nowrap">. . .</span> well,
+happened to be ill and an idiot . . . well,
 there were any number of social agencies which would care for it.
 Assuredly, then she must get away first. But where to go?
 
@@ -329,10 +285,7 @@ Neither, though, seemed interested in what they were doing. Both were
 feverishly apprehensive at all times. They quarrelled frequently, but
 would hasten to make amends to one another, so afraid were they that the
 first one to become angry might make a bolt for freedom. Alva drank more
-and more. Geraldine <span id="calibre_link-17" page-number="230"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/238"
-page-index="238" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/238"></span>worked,
+and more. Geraldine worked,
 saved and schemed, always planning and praying that she would be able to
 get away first.
 
@@ -341,20 +294,7 @@ food. The doctor ordered him not to drink any more bootleg beverages.
 Alva shrugged his shoulders, left the doctor’s office and sought out his
 favorite speakeasy.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Emma Lou was busy, and being busy, had had less time to think about
 herself than ever before. Thus, she was less distraught and much less
@@ -370,10 +310,7 @@ what she called “the right sort of people.”
 
 She had moved meanwhile into the Y. W.C. A. There she had met many young
 girls like herself, alone and unattached in New York and she had soon
-<span id="calibre_link-18" page-number="231"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/239"
-page-index="239" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/239"></span>found
+found
 herself moving in a different world altogether. She even had a pal,
 Gwendolyn Johnson, a likable, light-brown-skinned girl, who had the room
 next to hers. Gwendolyn had been in New York only a few months. She had
@@ -395,11 +332,7 @@ the young people’s bible class which met every Tuesday evening. In this
 way, they came into contact with many young folk, and were often invited
 to parties and dances.
 
-Gwendolyn helped Emma Lou with her courses in <span id="calibre_link-19"
-page-number="232"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/240"
-page-index="240" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/240"></span>education
+Gwendolyn helped Emma Lou with her courses in education
 and the two obtained and studied copies of questions which had been
 asked in previous examinations. Gwendolyn sympathized with Emma Lou’s
 color hyper-sensitivity and tried hard to make her forget it. In order
@@ -421,10 +354,7 @@ the poor white trash who lived in the adjacent block?
 She had thought her relatives and associates all a little silly,
 especially when they had objected to her marrying a man just two or
 three shades darker than herself. She felt that this was carrying things
-too far <span id="calibre_link-20" page-number="233"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/241"
-page-index="241" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/241"></span>even
+too far even
 in ancient Charleston where customs, houses and people all seemed
 antique and far removed from the present. Stubbornly she had married the
 man of her choice, and had exulted when her daughter had been nearer the
@@ -446,11 +376,7 @@ sermonisings, chose dark-skinned friends and beaux. Like her mother,
 Gwendolyn, was very exercised over the matter of intra-racial
 segregation and attempted to combat it verbally as well as actively.
 
-When she and Emma Lou began going around to<span id="calibre_link-21"
-page-number="234"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/242"
-page-index="242" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/242"></span>gether,
+When she and Emma Lou began going around together,
 trying to find a church to attend regularly, she had immediately
 black-balled the Episcopal Church, for she knew that most of its members
 were “pinks,” and despite the fact that a number of dark-skinned West
@@ -472,11 +398,7 @@ least bit anxious to be classified with persons who needed a champion.
 However, for the time being, Emma Lou was more free than ever from
 tortuous periods of self-pity and hatred. In her present field of
 activity, the question of color seldom introduced itself except as
-Gwendolyn introduced it, which she did continually, even <span
-id="calibre_link-22" page-number="235"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/243"
-page-index="243" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/243"></span>to
+Gwendolyn introduced it, which she did continually, even to
 the extent of lectures on race purity and the superiority of unmixed
 racial types. Emma Lou would listen attentively, but all the while she
 was observing Gwendolyn’s light-brown skin, and wishing to herself that
@@ -497,10 +419,7 @@ she called them, were the next generation of Negro leaders, the next
 generation of respectable society folk. They had a future; Alva merely
 lived for no purpose whatsoever except for the pleasure he could squeeze
 out of each living moment. He didn’t construct anything; the litter of
-pups <span id="calibre_link-23" page-number="236"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/244"
-page-index="244" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/244"></span>would,
+pups would,
 or at least they would be credited with constructing something whether
 they did or not. She found herself strangely uninterested in anything
 they might construct. She didn’t see that it would make much difference
@@ -521,10 +440,7 @@ independence was the solution to almost any problem. When she found
 herself a well-paying position she need not worry more. Everything else
 would follow and she would find herself among the pursued instead of
 among the pursuers. This was the gospel she now adhered to and placed
-faith in. She studied <span id="calibre_link-24" page-number="237"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/245"
-page-index="245" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/245"></span>hard,
+faith in. She studied hard,
 finished her courses at Teachers College, took and passed the school
 board examination, and mechanically followed Gwendolyn about, pretending
 to share her enthusiasms and hatreds. All would soon come to the desired
@@ -537,20 +453,7 @@ want to get mixed up with him.”
 Though meaning well, she did not know that it was precisely because he
 was one of those “yaller niggers” that Emma Lou liked him.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Emma Lou and her new “yaller nigger,” Benson Brown, were returning from
 church on a Tuesday evening where they had attended a Young People’s
@@ -559,11 +462,7 @@ they had left the church early, intent upon slipping away from
 Gwendolyn, and taking a walk before they parted for the night. Emma Lou
 had no reason for liking Benson save that she was flattered that a man
 as light as he should find himself attracted to her. It always gave her
-a thrill to stroll into church or down Seventh Avenue with <span
-id="calibre_link-25" page-number="238"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/246"
-page-index="246" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/246"></span>him.
+a thrill to stroll into church or down Seventh Avenue with him.
 And she loved to show him off in the reception room of the Y. W. C. A.
 True, he was almost as colorless and uninteresting to her as the rest of
 the crowd with whom she now associated, but he had a fair skin and he
@@ -585,11 +484,7 @@ yellow face, topped by red mariney hair, and studded with gray eyes. He
 was as ugly as he was stupid, and he had been as glad to have Emma Lou
 interested in him as she had been glad to attract him. She actually
 seemed to take him seriously, while every one else more or less laughed
-at him. Already he was planning to quit <span id="calibre_link-26"
-page-number="239"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/247"
-page-index="247" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/247"></span>school,
+at him. Already he was planning to quit school,
 go to work, and marry her; and Emma Lou, while not anticipating any such
 sudden consummation, remained blind to everything save his color and the
 attention he paid to her.
@@ -610,11 +505,7 @@ Avenue, Harlem’s Seventh Avenue, didn’t enter into it.
 
 Emma Lou didn’t feel like arguing. She walked along in silence, holding
 tightly to Benson’s arm and wondering whether or not Alva was somewhere
-on Seventh Avenue. Strange she had never seen him. <span
-id="calibre_link-27" page-number="240"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/248"
-page-index="248" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/248"></span>Perhaps
+on Seventh Avenue. Strange she had never seen him. Perhaps
 he had gone away. Benson wished to stop in order to listen to one of the
 street speakers who, he informed Emma Lou, was mighty smart. It seemed
 that he was the self-styled mayor of Harlem, and his spiel nightly was
@@ -635,10 +526,7 @@ It was Braxton. She didn’t know whether to speak to him or not. She
 wasn’t sure that he would acknowledge her salute should she address him,
 yet here was her chance to get news of Alva, and she felt that she might
 risk being snubbed. It would be worth it. He drew near. He was alone,
-and, as he passed, she <span id="calibre_link-28" page-number="241"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/249"
-page-index="249" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/249"></span>reached
+and, as he passed, she reached
 out her arm and touched him on the sleeve. He stopped, looked down at
 her and frowned.
 
@@ -651,20 +539,7 @@ enough to ask who it was she had spoken to. She mumbled something about
 an old friend, then suggested that they go home. She was tired. Benson
 agreed reluctantly and they turned toward the Y. W. C. A.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 A taxi driver had brought Alva home from a saloon where he had collapsed
 from cramps in the stomach. That had been on a Monday. The doctor had
@@ -675,10 +550,7 @@ drinking liquor and all other forms of dissipation, there could be no
 hope of recovery. This hadn’t worried Alva very much. He chafed at
 having to remain in bed, but possibility of death didn’t worry him. Life
 owed him very little, he told Geraldine. He was content to let the devil
-take his due. But <span id="calibre_link-29" page-number="242"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/250"
-page-index="250" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/250"></span>Geraldine
+take his due. But Geraldine
 was quite worried about the whole matter. Should Alva die or even be an
 invalid for any lengthy period, it would mean that she alone would have
 the burden of their misshapen child. She didn’t want that burden. In
@@ -701,10 +573,7 @@ as long as she was away and only had twenty-four hours more in New York
 she might as well make her disappearance then. If she went back she
 might betray herself or else become soft-hearted and remain.
 
-<span id="calibre_link-30" page-number="243"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/251"
-page-index="251" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/251"></span>Alva
+Alva
 was not very surprised when she failed to return home from work that
 Friday. The woman in the next room kept coming in at fifteen-minute
 intervals after five-thirty inquiring: “Hasn’t your wife come in yet?”
@@ -712,24 +581,18 @@ She wanted to get rid of the child which was left in her care daily. She
 had her own work to do, her own husband and child’s dinner to prepare;
 and, furthermore, she wasn’t being paid to keep the child both day and
 night. People shouldn’t have children unless they intended taking care
-of them. Finally Alva told her to bring the baby back to his room <span
-class="nowrap">. . .</span> his wife would be in soon. But he knew full
+of them. Finally Alva told her to bring the baby back to his room . . . his wife would be in soon. But he knew full
 well that Geraldine was not coming back. Hell of a mess. He was unable
 to work, would probably have to remain in bed another week, perhaps two.
 His money was about gone, and now Geraldine was not there to pay the
-rent out of her earnings. Damn. What to do <span
-class="nowrap">. . .</span> what to do? He couldn’t keep the child. If
+rent out of her earnings. Damn. What to do . . . what to do? He couldn’t keep the child. If
 he put it in a home they would expect him to contribute to its support.
 It was too bad that he didn’t know some one to leave this child of his
 with as his mother had done in his case. He began to wish for a drink.
 
 Hours passed. Finally the lady came into the room again to see if he or
 the baby wanted anything. She knew Geraldine had not come in yet. The
-partition between the two rooms was so thin that the <span
-id="calibre_link-31" page-number="244"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/252"
-page-index="252" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/252"></span>people
+partition between the two rooms was so thin that the people
 in one were privy to everything the people in the other did or said.
 Alva told her his wife must have gone to see her sick mother in Long
 Island. He asked her to take care of the baby for him. He would pay her
@@ -747,32 +610,27 @@ shave. He set about ridding himself of a week’s growth of beard, but
 being shaved only made his face look more like the face of a corpse. It
 was liquor he needed. He wished to hell some one would come along and
 get him some. But no one came. He went back to bed, his eyes fixed on
-the clock, watching its hands approach midnight. Five minutes to go<span
-class="nowrap">. . . .</span> There was a knock on the door. Eagerly he
+the clock, watching its hands approach midnight. Five minutes to go. . . . There was a knock on the door. Eagerly he
 sat up in the bed and shouted, “Come in.”
 
 But he was by no means expecting or prepared to see Emma Lou.
 
-<span id="calibre_link-32" page-number="245"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/253"
-page-index="253" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/253"></span>Emma
+Emma
 Lou’s room in the Y. W. C. A. at three o’clock that same morning. Emma
-Lou busy packing her clothes. <span class="wst-tooltip"
-title="[sic] 'Gwendolyn'">Geraldine</span> in negligee, hair disarrayed,
+Lou busy packing her clothes. Geraldine in negligee, hair disarrayed,
 eyes sleepy, yet angry:
 
 “You mean you're going over there to live with that man?”
 
 “Why not? I love him.”
 
-<span class="wst-tooltip" title="[sic] 'Gwendolyn'">Geraldine</span>
+Geraldine
 stared hard at Emma Lou. “But don’t you understand he’s just tryin’ to
 find some one to take care of that brat of his? Don’t be silly, Emma
 Lou. He doesn’t really care for you. If he did, he never would have
 deserted you as you once told me he did, or have subjected you to all
-those insults. And <span class="nowrap">. . .</span> he isn’t your type
-of man. Why, he’s nothing but a<span class="nowrap">. . .</span>”
+those insults. And . . . he isn’t your type
+of man. Why, he’s nothing but a. . .”
 
 “Will you mind tending to your own business, Gwendolyn,” her purple
 powdered skin was streaked with tears.
@@ -786,29 +644,13 @@ school and live with that man, too? Ain’t you got no regard for your
 reputation? I wouldn’t ruin myself for no yaller nigger. Here you're
 doing just what folks say a black gal always does. Where is your
 intelligence and pride? I’m through with you, Emma Lou. There’s probably
-<span id="calibre_link-33" page-number="246"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/254"
-page-index="254" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/254"></span>something
+something
 in this stuff about black people being different and more low than other
 colored people. You're just a common ordinary nigger! God, how I despise
 you!” And she had rushed out of the room, leaving Emma Lou dazed by the
 suddenness and wrath of her tirade.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Emma Lou was busier than she had ever been before in her life. She had
 finally received her appointment and was teaching in one of the public
@@ -826,11 +668,7 @@ fascinating object or occurrence. The doctor said that this would
 disappear in time.
 
 During those six months there had been a steady change in Alva Senior,
-too. At first he had been as <span id="calibre_link-34"
-page-number="247"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/255"
-page-index="255" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/255"></span>loving
+too. At first he had been as loving
 and kind to Emma Lou as he had been during the first days of their
 relationship. Then, as he got better and began living his old life
 again, he more and more relegated her to the position of a hired nurse
@@ -852,11 +690,7 @@ didn’t belong to any of the collegiate groups around Harlem. She didn’t
 seem to be identified with any one who mattered. They wondered how she
 had managed to get into the school system.
 
-Of course Emma Lou made little effort to make <span id="calibre_link-35"
-page-number="248"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/256"
-page-index="256" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/256"></span>friends
+Of course Emma Lou made little effort to make friends
 among them. She didn’t know how. She was too shy to make an approach and
 too suspicious to thaw out immediately when some one approached her. The
 first thing she noticed was that most of the colored teachers who taught
@@ -877,24 +711,19 @@ friendship that they were wary of her. But after she began to be a
 standard joke among the pupils and among the white teachers, they
 finally decided to send her an anonymous note, suggesting that she use
 fewer aids to the complexion. Emma Lou, on receiving the note, at first
-thought that it was the work of some practical joker. <span
-id="calibre_link-36" page-number="249"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/257"
-page-index="257" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/257"></span>It
+thought that it was the work of some practical joker. It
 never occurred to her that the note told the truth and that she looked
 twice as bad with paint and powder as she would without it. She
 interpreted it as being a means of making fun of her because she was
 darker than any one of the other colored girls. She grew more haughty,
 more acid, and more distant than ever. She never spoke to any one except
 as a matter of business. Then she discovered. that her pupils had
-nicknamed her <span class="nowrap">. . .</span> “Blacker’n me.”
+nicknamed her . . . “Blacker’n me.”
 
 What made her still more miserable was the gossip and comments of the
 woman in the next room. Lying in bed nights or else sitting at her table
 preparing her lesson plans, she could hear her telling every one who
-chanced in<span class="wst-bar"><span
-class="wst-bar-inner">——</span></span>
+chanced in——
 
 “You know that fellow in the next room? Well, let me tell you. His wife
 left him, yes-sireee, left him flat on his back in the bed, him and the
@@ -905,17 +734,12 @@ night his wife left. At first he was mighty s’prised to see her, then
 started laying it on, kissed her and hugged her, a-tellin’ her how much
 he loved her, and she crying like a fool all the time. I never heard the
 likes of it in my life. The next morning in she moves an’ she’s been
-here ever since. And you oughter see how <span id="calibre_link-37"
-page-number="250"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/258"
-page-index="258" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/258"></span>she
+here ever since. And you oughter see how she
 carries on over that child, just as loving, like as if she was his own
 mother. An’ now that she’s here an’ workin’ an’ that nigger’s well
 again, what does he do but go out an’ get drunk worse than he uster with
 his wife. Would you believe it? Stays away three and four nights a week,
-while she hustles out of here an’ makes time every morning<span
-class="nowrap">. . . .</span>”
+while she hustles out of here an’ makes time every morning. . . .”
 
 On hearing this for about the twentieth time, Emma Lou determined to
 herself that she was not going to hear it again. (She had also planned
@@ -932,11 +756,7 @@ living and report it to the school authorities? Was she morally fit to
 be teaching youth? She remembered her last conversation with Gwendolyn.
 
 For the first time now she also saw how Alva had used her during both
-periods of their relationship. <span id="calibre_link-38"
-page-number="251"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/259"
-page-index="259" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/259"></span>She
+periods of their relationship. She
 also realized that she had been nothing more than a commercial
 proposition to him at all times. He didn’t care for dark women either.
 He had never taken her among his friends, never given any signs to the
@@ -955,10 +775,7 @@ sordid tale. She could never face him again unless she had made some
 effort to reclaim herself. Well, that’s what she was going to do.
 Reclaim herself. She didn’t care what became of Alva Junior. Let Alva
 and that yellow slut of a wife of his worry about their own piece of
-tainted suet. <span id="calibre_link-39" page-number="252"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/260"
-page-index="260" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/260"></span>She
+tainted suet. She
 was leaving. She was going back to the Y.W.C.A., back to St. Mark’s
 A.M.E. Church, back to Gwendolyn, back to Benson. She wouldn’t stay here
 and have that child grow up to call her “black mammy.” Just because she
@@ -975,7 +792,7 @@ warning or without leaving a message, she had disappeared, telling only
 Gwendolyn where she was going. While waiting for the operator to
 establish connections, she recalled the conversation she and Gwendolyn
 had had at the time, recalled Gwendolyn’s horror and disgust on hearing
-what Emma Lou planned doing, recalled <span class="nowrap">. . .</span>
+what Emma Lou planned doing, recalled . . .
 some one was answering the ‘phone. She asked for Benson, and in a moment
 heard his familiar:
 
@@ -984,11 +801,7 @@ heard his familiar:
 “Hello, Benson, this is Emma Lou.” There was complete silence for a
 moment, then:
 
-“Emma Lou?” he dinned into her ear. “Well, where <span
-id="calibre_link-40" page-number="253"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/261"
-page-index="261" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/261"></span>have
+“Emma Lou?” he dinned into her ear. “Well, where have
 you been. Gwennie and I have been trying to find you.”
 
 This warmed her heart; coming back was not going to be so difficult
@@ -999,8 +812,7 @@ after all.
 The receiver fell from her hand. For a moment she stood like one
 stunned, unable to move. She could fear Benson on the other end of the
 wire clicking he receiver and shouting “Hello, Hello,” then the final
-clicking of the receiver as he hung up, followed by a deadened <span
-class="nowrap">. . .</span> “operator” <span class="nowrap">. . .</span>
+clicking of the receiver as he hung up, followed by a deadened . . . “operator” . . .
 “operator” from central.
 
 Somehow or other she managed to get hold of the receiver and replace it
@@ -1012,24 +824,20 @@ which Harlem cliff dwellers crowded to promenade. It was heavy laden,
 full of life and color, vibrant and leisurely. But for the first time
 since her arrival in Harlem, Emma Lou was impervious to all this. For
 the moment she hardly realized where she was. Only the constant jostling
-and the <span id="calibre_link-41" page-number="254"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/262"
-page-index="262" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/262"></span>raucous
+and the raucous
 ensemble of street noises served to bring her out of her daze.
 
 Gwendolyn and Benson married. “What do you want to waste your time with
 that yaller nigger for? I wouldn’t marry a yaller nigger.”
 
-“Blacker'n me” <span class="nowrap">. . .</span> “Why don’t you take a
+“Blacker'n me” . . . “Why don’t you take a
 hint and stop plastering your face with so much rouge and powder.”
 
 Emma Lou stumbled down Seventh Avenue, not knowing where she was going.
 She noted that she was at 135th Street. It was easy to tell this
 particular corner. It was called the campus. All the college boys hung
 out there when the weather permitted, obstructing the traffic and eyeing
-the <span class="wst-tooltip"
-title="[sic] 'passers by'">passersby</span> professionally. She turned
+the passersby professionally. She turned
 west on 135th Street. She wanted quiet. Seventh Avenue was too noisy and
 too alive and too happy. How could the world be happy when she felt like
 she did? There was no place for her in the world. She was too black,
@@ -1037,7 +845,7 @@ black is a portent of evil, black is a sign of bad luck.
 
  
 
-<span class="wst-fqm">“</span>A yaller gal rides in a limousine  
+“A yaller gal rides in a limousine  
 A brown-skin does the same;  
 A black gal rides in a rickety Ford,  
 But she gets there, yes, my Lord.”
@@ -1047,10 +855,7 @@ But she gets there, yes, my Lord.”
 “Alva Jr’s black mammy.” “Low down common nigger.” “Jes’ crazy ’bout
 that little yaller brat.”
 
-<span id="calibre_link-42" page-number="255"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/263"
-page-index="263" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/263"></span>She
+She
 looked up and saw a Western Union office sign shining above a lighted
 doorway. For a moment she stood still, repeating over and over to
 herself Westem Union, Western Union, as if to understand its meaning.
@@ -1071,11 +876,7 @@ too futile to merit consideration.
 
 Rationalizing thus, she moved away from in front of the Western Union
 office and started toward the park two blocks away. She felt that it was
-necessary that she do something about herself and her life and <span
-id="calibre_link-43" page-number="256"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/264"
-page-index="264" page-quality="3"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/264"></span>do
+necessary that she do something about herself and her life and do
 it immediately. Campbell Kitchen had said that every one must find
 salvation within one’s self, that no one in life need be a total misfit,
 and that there was some niche for every peg, whether that peg be round
@@ -1096,11 +897,7 @@ alive. There were thousands on thousands, who, like her, were plain,
 untalented, ordinary, and who, unlike herself, seemed to live in some
 degree of comfort. Was she alone to blame for her unhappiness? Although
 this had been suggested to her by others, she had been too obtuse to
-accept it. She had ever been eager to shift the entire blame on <span
-id="calibre_link-44" page-number="257"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/265"
-page-index="265" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/265"></span>others
+accept it. She had ever been eager to shift the entire blame on others
 when no doubt she herself was the major criminal.
 
 But having arrived at this—what did it solve or promise for the future?
@@ -1122,10 +919,7 @@ along a more difficult and direct path.
 
 By now Emma Lou had reached St. Nicholas Avenue and was about to cross
 over into the park when she heard the chimes of a clock and was reminded
-of <span id="calibre_link-45" page-number="258"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/266"
-page-index="266" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/266"></span>the
+of the
 hour. It was growing late—too late for her to wander in the park alone
 where she knew she would be approached either by some persistent male or
 an insulting park policeman. Wearily she started towards home, realizing
@@ -1146,11 +940,7 @@ within herself that no matter how much at the present moment she
 pretended to hate Alva that he had only to make the proper advances in
 order to win her to him again. Yet she also knew that she must leave him
 if she was to make her self-proposed adjustment—leave him now even if
-she should be weak enough to return at some not so distant date. <span
-id="calibre_link-46" page-number="259"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/267"
-page-index="267" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/267"></span>She
+she should be weak enough to return at some not so distant date. She
 was determined to fight against Alva’s influence over her, fight even
 though she lost, for she reasoned that even in losing she would win a
 pyrrhic victory and thus make her life less difficult in the future, for
@@ -1172,11 +962,7 @@ she give important things and receive nothing in return?
 
 She was in front of the house now and looking up saw that all the lights
 in her room were lit. And as she climbed the stairs she could hear a
-drunken chorus of raucous masculine laughter. Alva had <span
-id="calibre_link-47" page-number="260"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/268"
-page-index="268" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/268"></span>come
+drunken chorus of raucous masculine laughter. Alva had come
 home meanwhile, drunk of course and accompanied by the usual drunken
 crowd. Emma Lou started to turn back, to flee into the street—anywhere
 to escape being precipitated into another sordid situation, but
@@ -1195,11 +981,7 @@ Bobbie fumbled nervously at his hip pocket and finally produced a flask
 which he handed to Alva. Emma Lou stood at the door and watched Alva
 drink the liquor Bobbie had given him. Every one else in the room
 watched her. For the moment she did not know what to say or what to do.
-Obviously she couldn't continue standing there by the door nor <span
-id="calibre_link-48" page-number="261"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/269"
-page-index="269" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/269"></span>could
+Obviously she couldn't continue standing there by the door nor could
 she leave and let them feel that she had been completely put to rout.
 
 Alva handed the flask back to Bobbie, who got up from the bed and said
@@ -1225,11 +1007,7 @@ Emma Lou and snarled “If you don’t like it—”
 
 For the moment Emma Lou did not know what to do. Her first impulse was
 to strike him, but she was restrained because underneath the loathsome
-beast that he now was, she saw the Alva who had <span
-id="calibre_link-49" page-number="262"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/270"
-page-index="270" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/270"></span>first
+beast that he now was, she saw the Alva who had first
 attracted her to him, the Alva she had always loved. She suddenly felt
 an immense compassion for him and had difficulty in stifling an
 unwelcome urge to take him into her arms. Tears came into her eyes, and

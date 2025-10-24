@@ -1,10 +1,8 @@
-<span class="calibre8"><span class="smallcaps">Part I</span></span>
+Part I
 
-<span class="calibre8">EMMA LOU</span>
+EMMA LOU
 
-<span class="dropinitial"><span
-class="dropinitial-initial">M</span></span><span
-class="smallcaps1">ore</span> acutely than ever before Emma Lou began to
+More acutely than ever before Emma Lou began to
 feel that her luscious black complexion was somewhat of a liability, and
 that her marked color variation from the other people in her environment
 was a decided curse. Not that she minded being black, being a Negro
@@ -20,10 +18,7 @@ had been some eligible brown-skin men around. She didn't particularly
 desire to have had a "high yaller" father, but for her sake certainly
 some more happy medium could have been found.
 
-<span id="calibre_link-5" page-number="10"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/18"
-page-index="18" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/18"></span>She
+She
 wasn't the only person who regretted her darkness either. It was an
 acquired family characteristic, this moaning and grieving over the color
 of her skin. Everything possible had been done to alleviate the unhappy
@@ -46,10 +41,7 @@ Uncle Joe had hung in his bedroom? The picture wherein the black, kinky
 head of a little red-lipped pickaninny lay like a fly in a pan of milk
 amid a white expanse of bedclothes.
 
-<span id="calibre_link-6" page-number="11"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/19"
-page-index="19" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/19"></span>But
+But
 of course she couldn’t have worn blue or black when the call was for the
 wearing of white, even if white was not complementary to her complexion.
 She would have been odd-looking anyway no matter what she wore and she
@@ -71,10 +63,7 @@ high school diploma, but it would mean nothing to her whatsoever. The
 tragedy of her life was that she was too black. Her face and not a
 slender roll of ribbon-bound parchment was to be her future
 identification tag in society. High school diploma indeed! What she
-needed was an efficient <span id="calibre_link-7" page-number="12"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/20"
-page-index="20" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/20"></span>bleaching
+needed was an efficient bleaching
 agent, a magic cream that would remove this unwelcome black mask from
 her face and make Her more like her fellow men.
 
@@ -99,26 +88,10 @@ center, brought every muscle of her lithe limbs into play, haughtily
 extended her shiny black arm to receive the proffered diploma, bowed a
 chilly thanks, then holding her arms stiffly at her sides, insolently
 returned to her seat in that forboding white line, insolently returned
-once more to splotch its pale <span id="calibre_link-8" page-number="13"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/21"
-page-index="21" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/21"></span>purity
+once more to splotch its pale purity
 and to mock it with her dark, outlandish difference.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Emma Lou had been born in a semi-white world, totally surrounded by an
 all-white one, and those few dark elements that had forced their way in
@@ -138,10 +111,7 @@ Emma Lou had been becoming increasingly aware of this for a long time,
 but her immature mind had never completely grasped its full, and to her,
 tragic significance. First there had been the case of her father, old
 black Jim Morgan they called him, and Emma Lou had often wondered why it
-was that he <span id="calibre_link-9" page-number="14"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/22"
-page-index="22" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/22"></span>of
+was that he of
 all the people she heard discussed by her family should always be
 referred to as if his very blackness condemned him to receive no respect
 from his fellow men.
@@ -164,10 +134,7 @@ Emma Lou’s maternal grandparents, Samuel and Maria Lightfoot, were both
 mulatto products of slave-day promiscuity between male masters and
 female chattel. Neither had been slaves, their own parents having been
 granted their freedom because of their rather close connections with the
-white branch <span id="calibre_link-10" page-number="15"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/23"
-page-index="23" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/23"></span>of
+white branch of
 the family tree. These freedmen had migrated into Kansas with their
 children, and when these children had grown up they in turn had joined
 the westward-ho parade of that current era, and finally settled in
@@ -190,10 +157,7 @@ hordes of hungry, ragged, ignorant black folk arriving from the South in
 such great numbers, packed like so many stampeding cattle in dirty,
 manure-littered box cars.
 
-<span id="calibre_link-11" page-number="16"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/24"
-page-index="24" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/24"></span>From
+From
 all of this these maternal grandparents of Emma Lou fled, fled to the
 Rocky Mountain states which were too far away for the recently freed
 slaves to reach, especially since most of them believed that the world
@@ -215,11 +179,7 @@ social group.
 
 There was of course in such a small and haphazardly populated community
 some social intermixture between whites and blacks. White and black
-gamblers rolled the dice together, played tricks on one <span
-id="calibre_link-12" page-number="17"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/25"
-page-index="25" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/25"></span>another
+gamblers rolled the dice together, played tricks on one another
 while dealing faro, and became allies in their attempts to outfigure the
 roulette wheel. White and black men amicably frequented the saloons and
 dancehalls together. White and black women leaned out of the doorways
@@ -239,11 +199,7 @@ Emma Lou’s grandmother then, holding herself aloof from the inmates of
 “Whore Row,” and not wishing to associate with such as old Mammy Lewis’
 daughters, who did most of the town wash, and others of their ilk, was
 forced to choose her social equals slowly and carefully. This was hard,
-for there were so few Negroes in Boise anyway that there wasn’t <span
-id="calibre_link-13" page-number="18"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/26"
-page-index="26" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/26"></span>much
+for there were so few Negroes in Boise anyway that there wasn’t much
 cream to skim off. But as the years passed, others, who, like Maria and
 her husband, were mulatto offsprings of mulatto freedmen seeking a freer
 land, moved in, and were soon initiated into what was later to be known
@@ -264,10 +220,7 @@ superiority. Having some of Marse George’s blood in their veins set them
 apart from ordinary Negroes at birth. These mulattoes as a rule were not
 ordered to work in the fields beneath the broiling sun at the urge of a
 Simon Legree lash. They were saved and trained for the more gentle jobs,
-saved and trained to be <span id="calibre_link-14" page-number="19"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/27"
-page-index="27" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/27"></span>ladies’
+saved and trained to be ladies’
 maids and butlers. Therefore, let them continue this natural division of
 Negro society. Let them also guard against unwelcome and degenerating
 encroachments. Their motto must be “Whiter and whiter every generation,”
@@ -288,11 +241,7 @@ something of the kind might happen and had urged Samuel to send Jane and
 Joe away to some eastern boarding school, but Samuel had very stubbornly
 refused. He had his own notions of the sort of things one’s children
 learned in boarding school, and of the greater opportunities they had to
-apply that learning. True, they <span id="calibre_link-15"
-page-number="20"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/28"
-page-index="28" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/28"></span>might
+apply that learning. True, they might
 acquire the same knowledge in the public schools of Boise, but then
 there would be some limit to the extent to which they could apply this
 knowledge, seeing that they lived at home and perforce must submit to
@@ -315,10 +264,7 @@ a strolling band of Indians.
 
 No one could understand why Emma Lou’s mother had married Jim Morgan,
 least of all Jane herself. In fact she hadn’t thought much about it
-until <span id="calibre_link-16" page-number="21"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/29"
-page-index="29" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/29"></span>Emma
+until Emma
 Lou had been born. She had first met Jim at a church picnic, given in a
 woodlawn meadow on the outskirts of the city, and almost before she had
 realized what was happening she had found herself slipping away from
@@ -340,10 +286,7 @@ as dark as its father. She had been certain that it would be a luscious
 admixture, a golden brown with all its mother’s desirable facial
 features and its mother’s hair. But she hadn’t reckoned with nature’s
 perversity, nor had she taken under consideration the inescapable fact
-<span id="calibre_link-17" page-number="22"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/30"
-page-index="30" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/30"></span>that
+that
 some of her ancestors too had been black, and that some of their color
 chromosomes were still imbedded within her. Emma Lou had been fortunate
 enough to have hair like her mother’s, a thick, curly black mass of
@@ -361,28 +304,11 @@ not be stamped out or eradicated even after Jane, by getting a divorce
 from Jim and marrying a red-haired Irish Negro, had been accepted back
 into blue vein grace.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Emma Lou had always been the alien member of the family and of the
 family’s social circle. Her grandmother, now a widow, made her feel it.
-Her mother made her feel it. And her Cousin Buddie <span
-id="calibre_link-18" page-number="23"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/31"
-page-index="31" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/31"></span>made
+Her mother made her feel it. And her Cousin Buddie made
 her feel it, to say nothing of the way she was regarded by outsiders. As
 early as she could remember, people had been saying to her mother, “What
 an extraordinarily black child! Where did you adopt it?” or else, “Such
@@ -404,11 +330,7 @@ had hopes that away from his home town he might be able to pass for
 white and march unhindered by bars of color to fame and fortune.
 
 But such was not to be the case, for Emma Lou’s prospective stepfather
-was so conscious of the Negro <span id="calibre_link-19"
-page-number="24"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/32"
-page-index="32" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/32"></span>blood
+was so conscious of the Negro blood
 in his veins and so bitter because of it, that he used up whatever
 talents he had groaning inwardly at capricious fate, and planning
 revenge upon the world at large, especially the black world. For it was
@@ -429,14 +351,10 @@ sufficiently strong to draw him beyond race barriers and set him as one
 apart. His father had not been entirely cold to these plans and
 proposals, but his father’s wife had been. She didn’t mind her husband
 giving this nigger bastard of his money, and receiving him in his home
-on rare and private occasions. She was trying to be liberal, but <span
-id="calibre_link-20" page-number="25"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/33"
-page-index="33" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/33"></span>she
+on rare and private occasions. She was trying to be liberal, but she
 wasn’t going to have people point to her and say, “That’s Boss
 McNamara’s wife. Wonder if that nigger son is his'n or hers. They do
-say<span class="nowrap">. . . .</span>” So Aloysius had found himself
+say. . . .” So Aloysius had found himself
 shunted back into the black world he so despised. He couldn't be made to
 realize that being a Negro did not necessarily indicate that one must
 also be a ne’er-do-well. Had he been white, or so he said, he would have
@@ -452,28 +370,11 @@ Emma Lou fell into this latter class, and suffered at his hands
 accordingly, until he finally ran away from his wife, Emma Lou, Boise,
 Negroes, and all, ran away to Canada with Diamond Lil of “Whore Row.”
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Summer vacation was nearly over and it had not yet been decided what to
 do with Emma Lou now that she had graduated from high school. She
-herself gave no help nor offered any suggestions. As it was, <span
-id="calibre_link-21" page-number="26"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/34"
-page-index="34" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/34"></span>she
+herself gave no help nor offered any suggestions. As it was, she
 really did not care what became of her. After all it didn’t seem to
 matter. There was no place in the world for a girl as black as she
 anyway. Her grandmother had assured her that she would never find a
@@ -495,11 +396,7 @@ sensible could be done for Emma Lou. She was to take the four year
 college course, receive a bachelor degree in education, then go South to
 teach. That, they thought, was a promising future, and for once in the
 eighteen years of Emma Lou’s life every one was satisfied in some
-measure. Even Emma Lou grew elated over the <span id="calibre_link-22"
-page-number="27"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/35"
-page-index="35" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/35"></span>prospects
+measure. Even Emma Lou grew elated over the prospects
 of the trip. Her Uncle Joe’s insistance upon the differences of social
 contacts in larger cities intrigued her. Perhaps he was right after all
 in continually reasserting to them that as long as one was a Negro,
@@ -520,11 +417,7 @@ Palm trees and wild geraniums were pleasant to behold, and such strange
 phenomena as pepper trees and century plants had to be admired. They
 were very obvious and they were also strange and beautiful, but they
 impinged upon only a small corner of Emma Lou’s consciousness. She was
-minutely aware of them, necessarily took them in while passing, <span
-id="calibre_link-23" page-number="28"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/36"
-page-index="36" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/36"></span>viewing
+minutely aware of them, necessarily took them in while passing, viewing
 the totality without pondering over or lingering to praise their
 stylistic details. They were, in this instance, exquisite theatrical
 props, rendered insignificant by a more beautiful human pageant. For to
@@ -547,10 +440,7 @@ something to contemplate as a background for their activities.
 Everything was interesting as it was patronized, reflected through, or
 acquired by Negroes.
 
-<span id="calibre_link-24" page-number="29"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/37"
-page-index="37" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/37"></span>Her
+Her
 Uncle Joe had been right. Here, in the colored social circles of Los
 Angeles, Emma Lou was certain that she would find many suitable
 companions, intelligent, broad-minded people of all complexions,
@@ -571,26 +461,10 @@ their small circle of friends in Boise. But Boise was a provincial town,
 given to the molding of provincial people with provincial minds. Boise
 was a backwoods town out of the main stream of modern thought and
 progress. Its people were cramped and narrow, their intellectual
-concepts <span id="calibre_link-25" page-number="30"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/38"
-page-index="38" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/38"></span>stereotyped
+concepts stereotyped
 and static. Los Angeles was a happy contrast in all respects.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 On registration day, Emma Lou rushed out to the campus of the University
 of Southern California one hour before the registrar’s office was
@@ -611,10 +485,7 @@ not until she had been duly signed up as a student and sent in search of
 her advisor that she saw one. Then three colored girls had sauntered
 into the room where she was having a conference with her advisor,
 sauntered in, arms interlocked, greeted her advisor, then sauntered out
-<span id="calibre_link-26" page-number="31"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/39"
-page-index="39" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/39"></span>again.
+again.
 Emma Lou had wanted to rush after them—to introduce herself, but of
 course it had been impossible under the circumstances. She had
 immediately taken a liking to all three, each of whom was what is known
@@ -635,11 +506,7 @@ bumped into two dark-brown-skinned boys, obviously brothers if not
 twins, arguing as to where they should go next. One insisted that they
 should go back to the registrar’s office. The other was being equally
 insistent that they should go to the gymnasium and make an appointment
-for their required physical examination. <span id="calibre_link-27"
-page-number="32"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/40"
-page-index="40" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/40"></span>Emma
+for their required physical examination. Emma
 Lou boldly stopped when she saw them, hoping they would speak, but they
 merely glanced up at her and continued their argument, bringing cards
 and pamphlets out of their pockets for reference and guidance. Emma Lou
@@ -649,8 +516,7 @@ she wasn’t exactly certain how one went about becoming acquainted. But
 she finally decided that she had better let the advances come from the
 others, especially if they were men. There was nothing forward about
 her, and since she was a stranger it was no more than right that the
-old-timers should make her welcome. Still, if these had been girls <span
-class="nowrap">. . .</span> , but they weren’t, so she continued her way
+old-timers should make her welcome. Still, if these had been girls . . . , but they weren’t, so she continued her way
 down the stairs.
 
 In the bursar’s office, she was somewhat overjoyed at first to find that
@@ -664,11 +530,7 @@ didn’t talk that way. But meanwhile the girl was continuing:
 
 “Ain’t this registration a mess?”
 
-Two white girls who had fallen into line behind <span
-id="calibre_link-28" page-number="33"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/41"
-page-index="41" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/41"></span>Emma
+Two white girls who had fallen into line behind Emma
 Lou snickered. Emma Lou answered by shaking her head. The girl
 continued:
 
@@ -693,11 +555,7 @@ person had ever gotten out of high school. Where on earth could she have
 gone to high school? Surely not in the North. Then she must be a
 southerner. That’s what she was, a southerner—Emma Lou curled her lips a
 little—no wonder the colored people in Boise spoke as they did about
-southern Negroes and wished that they would stay South. Im<span
-id="calibre_link-29" page-number="34"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/42"
-page-index="42" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/42"></span>agine
+southern Negroes and wished that they would stay South. Imagine
 any one preparing to enter college saying “Is you,” and, to make it
 worse, right before all these white people, these staring white people,
 so eager and ready to laugh. Emma Lou’s face burned.
@@ -725,10 +583,7 @@ fees, and loudly differing with the cashier about the total amount due.
 figured it up myself before I left home.”
 
 The cashier obligingly turned to her adding machine and once more
-obtained the same total. <span id="calibre_link-30" page-number="35"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/43"
-page-index="43" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/43"></span>When
+obtained the same total. When
 shown this, the girl merely grinned, examined the list closely, and
 said:
 
@@ -754,11 +609,7 @@ Emma Lou had planned to loiter around the campus. She was still eager to
 become acquainted with the colored members of the student body, and this
 encounter with the crass and vulgar Hazel Mason had only made her the
 more eager. She resented being approached by any one so flagrantly
-inferior, any one so noticeably a typical southern darky, who had <span
-id="calibre_link-31" page-number="36"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/44"
-page-index="44" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/44"></span>no
+inferior, any one so noticeably a typical southern darky, who had no
 business obtruding into the more refined scheme of things. Emma Lou
 planned to lose her unwelcome companion somewhere on the campus so that
 she could continue unhindered her quest for agreeable acquaintances.
@@ -779,11 +630,7 @@ barbarian who had most certainly not come from a family of best people.
 No doubt her mother had been a washerwoman. No doubt she had innumerable
 relatives and friends all as ignorant and as ugly as she. There was no
 sense in any one having a face as ugly as Hazel’s, and Emma Lou thanked
-her stars that though she was black, her skin was not <span
-id="calibre_link-32" page-number="37"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/45"
-page-index="45" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/45"></span>rough
+her stars that though she was black, her skin was not rough
 and pimply, nor was her hair kinky, nor were her nostrils completely
 flattened out until they seemed to spread all over her face. No wonder
 people were prejudiced against dark skinned people when they were so
@@ -806,11 +653,7 @@ be in the future.
 
 “Good-by,” she said abruptly, “I must go home.” With which she turned
 away and walked rapidly in the opposite direction. She had only gone a
-few steps when she was aware of the fact that the girl was <span
-id="calibre_link-33" page-number="38"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/46"
-page-index="46" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/46"></span>following
+few steps when she was aware of the fact that the girl was following
 her. She quickened her pace, but the girl caught up with her and
 grabbing hold of Emma Lou’s arm, shouted,
 
@@ -837,11 +680,7 @@ new girl friend. Pleased to meetcha, says he. Climb aboard.”
 And Emma Lou had climbed aboard, perplexed, chagrined, thoroughly angry,
 and disgusted. What was this little black fool doing with a Stutz
 roadster? And of course, it would be painted red—Negroes always bedecked
-themselves and their belongings in <span id="calibre_link-34"
-page-number="39"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/47"
-page-index="47" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/47"></span>ridiculously
+themselves and their belongings in ridiculously
 unbecoming colors and ornaments. It seemed to be a part of their
 primitive heritage which they did not seem to have sense enough to
 forget and deny. Black girl—white hat—red and white striped sport
@@ -863,10 +702,7 @@ hadn’t actually heard it. But she had seen the strain in their faces,
 and she knew that as soon as she and Hazel were out of sight, they would
 give free rein to their suppressed mirth.
 
-<span id="calibre_link-35" page-number="40"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/48"
-page-index="48" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/48"></span>Although
+Although
 Emma Lou had finished registering, she returned to the university campus
 on the following morning in order to continue her quest for collegiate
 companions without the alarming and unwelcome presence of Hazel Mason.
@@ -886,10 +722,7 @@ the “right sort of people.” Her flamboyant style of dress, her loud
 voice, her raucous laughter, and her flagrant disregard or ignorance of
 English grammar seemed inexcusable to Emma Lou, who was unable to
 understand how such a person could stray so far from the environment in
-which she rightfully be<span id="calibre_link-36" page-number="41"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/49"
-page-index="49" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/49"></span>longed
+which she rightfully belonged
 to enter a first class university. Now Hazel, according to Emma Lou, was
 the type of Negro who should go to a Negro college. There were plenty of
 them in the South whose standard of scholarship was not beyond her
@@ -913,10 +746,7 @@ and she shivered as she walked or stood in the shade. She had no school
 business to attend to; there was nothing for her to do but to walk
 aimlessly about the campus.
 
-<span id="calibre_link-37" page-number="42"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/50"
-page-index="50" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/50"></span>In
+In
 another hour, Emma Lou was pleased to see that the campus walks were
 becoming crowded, and that the side streets surrounding the campus were
 now heavy with student traffic. Things were beginning to awaken. Emma
@@ -937,10 +767,7 @@ it would then have been a simple matter to get acquainted.
 
 But five people in one bunch, all known to one another and all chatting
 intimately together!—it would seem too much like an intrusion to go
-<span id="calibre_link-38" page-number="43"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/51"
-page-index="51" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/51"></span>bursting
+bursting
 into their gathering—too forward and too vulgar. Then, there was nothing
 she could say after having said “good morning.” One just didn’t break
 into a group of five and say, “I'm Emma Lou Morgan, a new student, and I
@@ -967,10 +794,7 @@ made a pretense of mumbled conversation among themselves. Only Verne
 Davis looked directly at her and it was she alone who returned Emma
 Lou’s smile.
 
-<span id="calibre_link-39" page-number="44"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/52"
-page-index="52" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/52"></span>“Whatcha
+“Whatcha
 grinnin’ at?” Bob chided Verne as Emma Lou passed out of earshot.
 
 “At the little frosh, of course. She grinned at me. I couldn’t stare at
@@ -988,8 +812,7 @@ her without returning it.”
 
 “Hottentots, Bob.”
 
-“Good grief,” exclaimed Tommy, “why don’t you recruit some <span
-class="wst-tooltip" title="[sic] 'good-looking'">good-loking</span>
+“Good grief,” exclaimed Tommy, “why don’t you recruit some good-loking
 co-eds out here?”
 
 “We don’t choose them,” Helen returned.
@@ -1004,11 +827,7 @@ the boys to discuss the sad days which had fallen upon the campus.
 Emma Lou, of course, knew nothing of all this. She had gone her way
 rejoicing. One of the students had noticed her, had returned her smile.
 This getting acquainted was going to be an easy matter after all. It was
-just necessary that she exercise a little <span id="calibre_link-40"
-page-number="45"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/53"
-page-index="53" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/53"></span>patience.
+just necessary that she exercise a little patience.
 One couldn’t expect people to fall all over one without some preliminary
 advances. True, she was a stranger, but she would show them in good time
 that she was worthy of their attention, that she was a good fellow and a
@@ -1030,10 +849,7 @@ student, they could become friends and together find their way into the
 inner circle of those colored students who really mattered.
 
 Emma Lou was essentially a snob. She had absorbed this trait from the
-very people who had sought <span id="calibre_link-41" page-number="46"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/54"
-page-index="54" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/54"></span>to
+very people who had sought to
 exclude her from their presence. All of her life she had heard talk of
 “right sort of people,” and of “the people who really mattered,” and
 from these phrases she had formed a mental image of those to whom they
@@ -1054,11 +870,7 @@ out of place.
 Emma Lou was determined to become associated only with those people who
 really mattered, northerners like herself or superior southerners, if
 there were any, who were different from whites only in so far as skin
-color was concerned. This girl, to whom she <span id="calibre_link-42"
-page-number="47"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/55"
-page-index="55" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/55"></span>was
+color was concerned. This girl, to whom she was
 now about to introduce herself, was the type she had in mind, genteel,
 well and tastily dressed, and not ugly.
 
@@ -1093,10 +905,7 @@ Oh, my name’s Emma Lou Morgan.”
 They both laughed. There was a moment of silence. Alma looked at her
 wrist watch, then got up from the bench.
 
-<span id="calibre_link-43" page-number="48"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/56"
-page-index="56" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/56"></span>“I'm
+“I'm
 glad to have met you. I've got to see my advisor at ten-thirty.
 Good-by.” And she moved away gracefully.
 
@@ -1118,10 +927,7 @@ strolling down one of the campus paths. She remembered Verne as the girl
 who had smiled at her. She observed her more closely, and admired her
 pleasant dark brown face, made doubly attractive by two evenly placed
 dimples and a pair of large, heavily-lidded, pitch black eyes. Emma Lou
-thought her to be much <span id="calibre_link-44" page-number="49"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/57"
-page-index="57" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/57"></span>more
+thought her to be much more
 attractive than the anemic-looking yellow girl with whom she was
 strolling. There was something about this second girl which made Emma
 Lou feel that she was not easy to approach.
@@ -1155,11 +961,7 @@ Morgan. Good-by.”
 
 “Good-by,” said Emma Lou and stood watching them as they went on their
 way. Yes, college life was going to be the thing to bring her out, the
-turning point in her life. She would show the people back in <span
-id="calibre_link-45" page-number="50"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/58"
-page-index="58" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/58"></span>Boise
+turning point in her life. She would show the people back in Boise
 that she did not have to be a “no-gooder” as they claimed her father had
 been, just because she was black. She would show all of them that a dark
 skin girl could go as far in life as a fair skin one, and that she could
@@ -1170,20 +972,7 @@ black girl, and it would take her, Emma Lou Morgan, to prove it.
 
 With which she set out to make still more acquaintances.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Two weeks of school had left Emma Lou’s mind in a chaotic state. She was
 unable to draw any coherent conclusions from the jumble of new things
@@ -1195,10 +984,7 @@ bigness awed her. Its blatant reality shocked her. There was nothing
 romantic about going to college. It was, indeed, a serious business. One
 went there with a purpose and had several other purposes inculcated into
 one after school began. This getting an education was stern and serious,
-<span id="calibre_link-46" page-number="51"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/59"
-page-index="59" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/59"></span>regulated
+regulated
 and systematized, dull and unemotional.
 
 Besides being disappointed at the drabness and lack of romance in
@@ -1221,11 +1007,7 @@ was because she was still new and comparatively unknown to them. She
 felt that she must not forget that most of them had known one another
 for a long period of time and that it was necessary for people who
 “belonged” to be wary of strangers. That was it. She was still a
-stranger, had only been among them for about <span id="calibre_link-47"
-page-number="52"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/60"
-page-index="60" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/60"></span>two
+stranger, had only been among them for about two
 weeks. What did she expect? Why was she so impatient?
 
 The thought of the color question presented itself to her time and time
@@ -1246,11 +1028,7 @@ scooting about the campus, cutting capers, playing the darky for the
 amused white students. Any time Hazel asked or answered a question in
 any of the lecture halls, there was certain to be laughter. She had a
 way of phrasing what she wished to say in a manner which was invariably
-laugh provoking. The very tone and quality of her voice <span
-id="calibre_link-48" page-number="53"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/61"
-page-index="61" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/61"></span>designated
+laugh provoking. The very tone and quality of her voice designated
 her as a minstrel type. In the gymnasium she would do buck and wing
 dances and play low-down blues on the piano. She was a pariah among her
 own people because she did not seem to know, as they knew, that Negroes
@@ -1271,11 +1049,7 @@ the main campus grounds very often, but when she did, she always looked
 for Emma Lou and made welcome overtures of friendship. It was her second
 year in the university, and yet, she too seemed to be on the outside of
 things. She didn’t seem to be invited to the parties and dances, nor was
-she a member of the Greek letter <span id="calibre_link-49"
-page-number="54"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/62"
-page-index="62" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/62"></span>sorority
+she a member of the Greek letter sorority
 which the colored girls had organized. Emma Lou asked her why.
 
 “Have they pledged you?” was Grace Giles’ answer.
@@ -1305,11 +1079,7 @@ regularly enrolled student like herself, she would have found things
 different, and she was also certain that both she and Grace would be
 asked to join the sorority in due time.
 
-But they weren’t. Nor did an entire term in the <span
-id="calibre_link-50" page-number="55"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/63"
-page-index="63" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/63"></span>school
+But they weren’t. Nor did an entire term in the school
 change things one whit. The Christmas holidays had come and gone and
 Emma Lou had not been invited to one of the many parties. She and Grace
 and Hazel bound themselves together and sought their extra-collegiate
@@ -1329,11 +1099,7 @@ the scholastic grind on the next morning. Just before the mid-term
 examinations, she was advised by the faculty to drop out of school until
 the next year, and to put herself in the hands of a tutor during the
 intervening period. It was evident that her background was not all that
-it should be; her preparatory work had not been sufficiently <span
-id="calibre_link-51" page-number="56"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/64"
-page-index="64" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/64"></span>complete
+it should be; her preparatory work had not been sufficiently complete
 to enable her to continue in college. As it was, they told her, she was
 wasting her time. So Hazel disappeared from the campus and was said to
 have gone back to Texas. “Serves her right, glad she’s gone,” was the
@@ -1355,11 +1121,7 @@ one of Grace’s friends. Emma Lou never liked the people to whom Grace
 introduced her. They were a dull, commonplace lot for the most part,
 people from Georgia, Grace’s former home, untutored people who didn’t
 really matter. Emma Lou borrowed a word from her grandmother and
-classified them as “fuddlers,” because they seemed to fuddle <span
-id="calibre_link-52" page-number="57"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/65"
-page-index="65" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/65"></span>everything—their
+classified them as “fuddlers,” because they seemed to fuddle everything—their
 language, their clothes, their attempts at politeness, and their efforts
 to appear more intelligent than they really were.
 
@@ -1381,10 +1143,7 @@ Had any one asked Emma Lou what she meant by the “right sort of people”
 she would have found herself at a loss for a comprehensive answer. She
 really didn’t know. She had a vague idea that those people on the campus
 who practically ignored her were the only people with whom she should
-associate. These <span id="calibre_link-53" page-number="58"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/66"
-page-index="66" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/66"></span>people,
+associate. These people,
 for the most part, were children of fairly well-to-do families from
 Louisiana, Texas and Georgia, who, having made nest eggs, had journeyed
 to the West for the same reasons that her grandparents at an earlier
@@ -1407,10 +1166,7 @@ grandchildren from having dark complexions. A light brown was the
 favored color; it was therefore found expedient to exercise caution when
 it came to mating.
 
-<span id="calibre_link-54" page-number="59"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/67"
-page-index="67" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/67"></span>The
+The
 people who, in Emma Lou’s phrase, really mattered, the business men, the
 doctors, the lawyers, the dentists, the more moneyed pullman porters,
 hotel waiters, bank janitors, and majordomos, in fact all of the Negro
@@ -1430,26 +1186,10 @@ Hazel into their sorority, for they knew that it would make them the
 more miserable to attain the threshold only to have the door shut in
 their faces.
 
-<span class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000003.png" class="mw-file-element2" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000002.png" class="mw-file-element1" /></span><span
-class="mw-default-size"
-typeof="mw:File"><img src="images/000001.png" class="mw-file-element" /></span>
+<hr/>
 
 Summer vacation time came and Emma Lou went back to Boise. She was
-thoroughly discouraged and <span id="calibre_link-55" page-number="60"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/68"
-page-index="68" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/68"></span>depressed.
+thoroughly discouraged and depressed.
 She had been led to expect so much pleasure from her first year in
 college and in Los Angeles; but she had found that the people in large
 cities were after all no different from people in small cities. Her
@@ -1472,10 +1212,7 @@ fostered by the local chapters of the Masons and the Elks, the only big
 community gathering to which the entire colored population of Boise
 looked forward.
 
-<span id="calibre_link-56" page-number="61"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/69"
-page-index="69" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/69"></span>Picnic
+Picnic
 day came, and Emma Lou accompanied her mother, her uncle, and her cousin
 to Bedney's Meadow, a green, heavily forested acre of park land, which
 lay on the outskirts of the city, surrounded on three sides by verdant
@@ -1496,11 +1233,7 @@ name of Weldon Taylor. In the evening they went for a stroll up the
 precipitous footpaths in the hills which grew up from the meadow. Weldon
 Taylor was a newcomer in the West trying to earn sufficient money to
 re-enter an eastern school and finish his medical education. Emma Lou
-rather liked him. She admired his tall, slender body, <span
-id="calibre_link-57" page-number="62"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/70"
-page-index="70" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/70"></span>the
+rather liked him. She admired his tall, slender body, the
 deep burnish of his bronze colored skin, and his mass of black curly
 hair. Here, thought Emma Lou, is the type of man I like. Only she did
 wish that his skin had been colored light brown instead of dark brown.
@@ -1518,15 +1251,11 @@ elbow like, from the side of a hill, and which was hidden from the
 meadow below by clumps of bushes. They sat down, his arm slipped around
 her waist, and, as the darkness of night more and more conquered the
 evanescent light of day, their lips met, and Emma Lou grew lax in
-Weldon’s arms<span class="nowrap">. . . .</span>
+Weldon’s arms. . . .
 
 When they finally returned to the picnic grounds all had left save a few
 stragglers like themselves who had sauntered away from the main party.
-These made up a laughing, half-embarrassed group, who <span
-id="calibre_link-58" page-number="63"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/71"
-page-index="71" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/71"></span>collected
+These made up a laughing, half-embarrassed group, who collected
 their baskets and reluctantly withdrew from the meadow to begin the long
 walk back to their homes. Emma Lou and Weldon soon managed to fall at
 the end of the procession, walking along slowly, his arm around her
@@ -1547,11 +1276,7 @@ new and incomparably satisfying paradise.
 Not for one moment did Emma Lou consider regretting the loss of her
 virtue, not once did any of her mother’s and grandmother’s warnings and
 solicitations revive themselves and cause her conscience to plague her.
-She had finally found herself a mate; <span id="calibre_link-59"
-page-number="64"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/72"
-page-index="72" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/72"></span>she
+She had finally found herself a mate; she
 had finally come to know the man she should love, some inescapable force
 had drawn them together, had made them feel from the first moment of
 their introduction that they belonged to one another, and that they were
@@ -1572,10 +1297,7 @@ other elements, not contained within herself, would also have to aid in
 their molding. She had lived to herself for so long, had been shut out
 from the stream of things in which she was interested for such a long
 period during the formative years of her life, that she considered her
-own imaginative powers <span id="calibre_link-60" page-number="65"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/73"
-page-index="73" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/73"></span>omniscient.
+own imaginative powers omniscient.
 Thus she constructed a future world of love on one isolated experience,
 never thinking for the moment that the other party concerned might not
 be of the same mind. She had been lifted into a superlatively perfect
@@ -1596,10 +1318,7 @@ when she was in love? Her mother and her Uncle Joe were so amazed at the
 change in her that they became afraid, sensed danger, and began to be on
 the lookout for some untoward development; for hitherto Emma Lou had
 always been sullen and morose and impertinent to all around the house.
-She had always <span id="calibre_link-61" page-number="66"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/74"
-page-index="74" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/74"></span>been
+She had always been
 the anti-social creature they had caused her to feel she was and, since
 she was made to feel that she was a misfit, she had encroached upon
 their family life and sociabilities only to the extent that being in the
@@ -1623,10 +1342,7 @@ not feel. He, too, was worried, but he was also pleased at the change in
 Emma Lou. His only fear was that perhaps in the end she would make
 herself more miserable than she had ever been before. He did not know
 much about this Weldon fellow, who seemed to be a reliable enough chap,
-but <span id="calibre_link-62" page-number="67"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/75"
-page-index="75" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/75"></span>no
+but no
 one had any way of discerning whether or no his intentions were entirely
 honorable. It was best, thought Joe, not to worry about such things. If,
 for the present, Emma Lou was more happy than she had ever been before,
@@ -1636,8 +1352,7 @@ materialized.
 “Don’t you worry about Emma Lou. She’s got sense.”
 
 “But, Joe, suppose she does forget herself with this man? He is studying
-to be a doctor and he may not want a wife, especially when<span
-class="nowrap">. . . .</span>”
+to be a doctor and he may not want a wife, especially when. . . .”
 
 “Damn it, Jane!” her brother snapped at her. “Do you think every one is
 like you? The boy seems to like her.”
@@ -1656,10 +1371,7 @@ There’s no hope for her anyway. Oh—why—why did I marry Jim Morgan?” and
 she had gone into the usual crying fit which inevitably followed this
 self-put question.
 
-<span id="calibre_link-63" page-number="68"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/76"
-page-index="76" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/76"></span>Then,
+Then,
 without any warning, as if to put an end to all problems, Weldon decided
 to become a Pullman porter. He explained to Emma Lou that he could make
 more money on the railroad than he could as a hotel waiter in Boise. It
@@ -1680,11 +1392,7 @@ matter. There didn’t seem to be the least note of regret in his voice,
 the least suggestion that he hated to leave her or that he would miss
 her, and, for the first time since the night of their physical union,
 Emma Lou began to realize that perhaps after all he did not feel toward
-her as she did toward him. He couldn’t possibly love her <span
-id="calibre_link-64" page-number="69"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/77"
-page-index="77" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/77"></span>as
+her as she did toward him. He couldn’t possibly love her as
 much as she loved him, and, at the same time, remain so unconcerned
 about having to part from her. There was something radically wrong here,
 something conclusive and unexpected which was going to hurt her, going
@@ -1705,10 +1413,7 @@ herself to him! And now that he was about to better his condition, about
 to go some place where he would have a wider circle of acquaintances,
 she was to be discarded and forgotten.
 
-<span id="calibre_link-65" page-number="70"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/78"
-page-index="78" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/78"></span>Thus
+Thus
 Emma Lou reasoned to herself and grew bitter. It never occurred to her
 that the matter of her color had never once entered the mind of Weldon.
 Not once did she consider that he was acting toward her as he would have
@@ -1728,11 +1433,7 @@ present such a wife in the best society. It was the tragic feature of
 her life once more asserting itself. There could be no happiness in life
 for any woman whose face was as black as hers.
 
-Believing this more intensely than ever before <span
-id="calibre_link-66" page-number="71"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/79"
-page-index="79" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/79"></span>Emma
+Believing this more intensely than ever before Emma
 Lou yet felt that she must manage in some way to escape both home and
 school. That she must find happiness somewhere else. The idea her Uncle
 Joe had given her about the provinciality of people in small towns
@@ -1744,8 +1445,7 @@ mother and uncle to send her East to school.
 
 “Can’t you ever be satisfied?”
 
-“Now Jane,” Joe as usual was trying to keep the peace<span
-class="wst-bar"><span class="wst-bar-inner">——</span></span>
+“Now Jane,” Joe as usual was trying to keep the peace——
 
 “Now Jane, nothing! I never saw such an ungrateful child.”
 
@@ -1759,10 +1459,7 @@ And rather than remain home Emma Lou returned to Los Angeles and spent
 another long miserable, uneventful year in the University of Southern
 California, drawing more and more within herself and becoming more and
 more bitter. When vacation time came again she got herself a job as maid
-in a theater, <span id="calibre_link-67" page-number="72"
-page-name="Page:The Blacker the Berry - Thurman - 1929.djvu/80"
-page-index="80" page-quality="4"
-title="Page:The_Blacker_the_Berry_-_Thurman_-_1929.djvu/80"></span>rather
+in a theater, rather
 than return home, and studied stenography during her spare hours. School
 began again and Emma Lou re-entered with more determination than ever to
 escape should the chance present itself. It did, and once more Emma Lou
