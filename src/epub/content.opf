@@ -45,8 +45,8 @@
 		<meta property="se:subject">Fiction</meta>
 		<dc:description id="description">A dark-skinned young woman moves to Harlem and becomes frustrated by colorism in the African-American community.</dc:description>
 		<meta id="long-description" property="se:long-description" refines="#description">
-			<p>The debut novel of <a href="https://standardebooks.org/ebooks/wallace-thurman">Wallace Thurman</a>, <i>The Blacker the Berry</i> follows the life of Emma Lou, a dark-skinned young woman from Boise, as she graduates high school and enters adult life as a college student. After being the target of colorist prejudice from her fellow African-American students at the University of Southern California, Emma Lou decides to drop out and move to Harlem—where she is swept into a torrid love affair that only deepens her sense of color-consciousness.</p>
-			<p>Written and set during the height of the Harlem Renaissance, <i>The Blacker the Berry</i> was one of the first African-American novels to address the themes of colorism and homosexuality. It remains one of the canonical novels of the Harlem Renaissance.</p>
+			&lt;p&gt;The debut novel of &lt;a href="https://standardebooks.org/ebooks/wallace-thurman"&gt;Wallace Thurman&lt;/a&gt;, &lt;i&gt;The Blacker the Berry&lt;/i&gt; follows the life of Emma Lou, a dark-skinned young woman from Boise, as she graduates high school and enters adult life as a college student. After being the target of colorist prejudice from her fellow African-American students at the University of Southern California, Emma Lou decides to drop out and move to Harlem—where she is swept into a torrid love affair that only deepens her sense of color-consciousness.&lt;/p&gt;
+			&lt;p&gt;Written and set during the height of the Harlem Renaissance, &lt;i&gt;The Blacker the Berry&lt;/i&gt; was one of the first African-American novels to address the themes of colorism and homosexuality. It remains one of the canonical novels of the Harlem Renaissance.&lt;/p&gt;
 		</meta>
 		<dc:language>en-US</dc:language>
 		<dc:source>https://en.wikisource.org/wiki/The_Blacker_the_Berry</dc:source>
